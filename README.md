@@ -9,5 +9,5 @@
     QQ群：862395664
         
     再次感谢您的支持
-    Thank you again for your suppor
+    Thank you again for your support
 
